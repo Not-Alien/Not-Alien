@@ -22,4 +22,4 @@
 
 ⌗ !! ꒰ DNI!: 18+, SSS, Naz1s, ꒱ 🌹⌗
 
-⌗ !! ꒰ Discord server:https://discord.gg/SaPUEFPY ꒱ 🌹⌗
+⌗ !! ꒰ Discord serverhttps://discord.gg/gmNDYjCde2꒱ 🌹⌗
